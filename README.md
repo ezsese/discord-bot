@@ -1,1 +1,0 @@
-تن# discord-bot
